@@ -8,4 +8,7 @@ I dont know if i am at the right place here. But I thought, I start a try.
 I can feel that my PC settings ana also firefox settings are getting worse the more i try to fix. uBlock the same.
 
 So, when i am totaly wrong here, ignore me. when you have one or two tipps for a noob and they can maybe fix some problem, or if not it wont will be more bad than before, thank you.
-Greets
+
+Greets and thank you for reading until here
+
+I am going to check next days if someone answered me
